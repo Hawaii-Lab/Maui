@@ -1,2 +1,2 @@
 # Maui
-welcome to Maui Island!!
+WELCOME TO MAUI ISLAND🏝
